@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on some any thing worthwhile 
 - 📫 You could reach me via Facebook @DavidKingstonII & WhatsApp(+2348023049727)
 - ✌️ Im currently looking forward to making new connections 
-- ⚡ Fun fact: I shsre a birthday with Elon Musk 
+- ⚡ Fun fact: I share a birthday with Elon Musk 
 
 <!---
 kingstonII/kingstonII is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
